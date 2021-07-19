@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @wednesday743ish
-- 👀 I’m interested in coding codes making BBBB, a ventures join inventor such Kikouks Paok Ltd accredited Regtech FinTech, etc.
+- 👋 Hi, I’m *@wednesday743ish*
+- 👀 I’m interested in coding codes making BBBB, a ventures join inventor such *Kikouks Paok Ltd* accredited Regtech FinTech, etc.
 - 🌱 I’m currently learning expertise of programme in broads technology communication TELE
 - 💞️ I’m looking to collaborate on Technology information digitalize, for-profit.
 - 📫 How to reach me; 
-https://tawk.to/wednesday743ish
-https://profrevhatm740.chatango.com
+[Tawk.to](https://tawk.to/wednesday743ish) &
+[PROFREVHATm740](https://profrevhatm740.chatango.com)
 
 
 
